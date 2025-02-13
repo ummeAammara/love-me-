@@ -8,6 +8,6 @@ Do you love me? 💕 Click "No" if you dare! 😏
 - Fun and flirty messages 💌
 
 ### 🚀 Try It Out:
-Click Here to See the Website; https://github.com/ummeAammara/love-me-.git 💕
+Click Here to See the Website; https://ummeaammara.github.io/love-me-/ 💕
 
 Made with 💖 by umme Ammara 
